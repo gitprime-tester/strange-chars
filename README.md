@@ -6,4 +6,4 @@
 
 睡吧！睡吧！我请爱滴宝贝！
 
-Strange!
+Stranger still!!!!
